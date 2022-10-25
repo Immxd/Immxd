@@ -1,8 +1,8 @@
 ### Hi there 👋
 
 - Ramen Lover(●'◡'●)
-- artist 🎨
-- 03/160 🌝💖
+- artist 🎨✨
+- 03/160 💖
 
 <!--
 **Immxd/Immxd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
